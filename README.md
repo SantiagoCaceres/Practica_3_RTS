@@ -1,1 +1,0 @@
-# Practica_2_RTS
